@@ -1,1 +1,0 @@
-# chungnam_univ
